@@ -1,3 +1,6 @@
+![profile_photo](https://user-images.githubusercontent.com/46466390/127887325-3012da09-318c-4663-acaa-c1a1c37b4091.jpg)
+
+
 # Jatin Valecha
 
 
