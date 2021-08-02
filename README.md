@@ -5,8 +5,8 @@
 
 
 ~~~
-To make a good position in a reputed company and work enthusiastically in team which 
-provides me a steady career growth along with job satisfaction, challenges and give value 
+To make a good position in a reputed company and work enthusiastically in a team which 
+provides me a steady career growth along with job satisfaction, challenges give value 
 contribution in the success and to build a challenging career with honesty and loyalty 
 by translating my experience knowledge ,skills and abilities into value for an organization.
 Trainee on Python with Machine Learning at Brillica Services Dehradun.
